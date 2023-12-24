@@ -1,1 +1,1 @@
-# very-basic-resume
+https://sridhar355.github.io/very-basic-resume/
